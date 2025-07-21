@@ -1,0 +1,2 @@
+# sayangku
+apapun itu
